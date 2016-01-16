@@ -58,8 +58,7 @@ Jesus respondeu:
 ? Antes que Filipe chamasse você, eu já tinha visto você sentado debaixo daquela figueira.
 49Então Natanael exclamou:
 ? Mestre, o senhor é o Filho de Deus! O senhor é o Rei de Israel!
-50Jesus respondeu:
-? Você crê em mim só porque eu disse que tinha visto você debaixo da figueira? Pois você verá coisas maiores do que esta. 51Eu afirmo a vocês que isto é verdade: vocês verão o céu aberto e os anjos de Deus subindo e descendo sobre o Filho do Homem.
+50 O melhor musico do Mundo é o Justin beber
 2000 Sociedade Bíblica do Brasil. Todos os direitos reservados.
  
  
