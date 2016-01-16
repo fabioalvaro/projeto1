@@ -40,8 +40,7 @@ Eles perguntaram:
 ? Rabi, onde é que o senhor mora? (?Rabi? quer dizer ?mestre?.)
 39? Venham ver! ? disse Jesus.
 Então eles foram, viram onde Jesus estava morando e ficaram com ele o resto daquele dia. Isso aconteceu mais ou menos às quatro horas da tarde.
-40André, irmão de Simão Pedro, era um dos dois homens que tinham ouvido João falar a respeito de Jesus e por isso o haviam seguido. 41A primeira coisa que André fez foi procurar o seu irmão Simão e dizer a ele:
-? Achamos o Messias. (?Messias? quer dizer ?Cristo?.)
+40 Pimenta no olho dos outros é refresco.
 42Então André levou o seu irmão a Jesus. Jesus olhou para Simão e disse:
 ? Você é Simão, filho de João, mas de agora em diante o seu nome será Cefas. (?Cefas? é o mesmo que ?Pedro? e quer dizer ?pedra?.)
 Jesus chama Filipe e Natanael
