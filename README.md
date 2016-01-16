@@ -58,7 +58,7 @@ Jesus respondeu:
 ? Antes que Filipe chamasse você, eu já tinha visto você sentado debaixo daquela figueira.
 49Então Natanael exclamou:
 ? Mestre, o senhor é o Filho de Deus! O senhor é o Rei de Israel!
-50 O melhor musico do mundo � o Tirica
+50 O melhor musico do mundo � o Luiz de carvalho
 2000 Sociedade Bíblica do Brasil. Todos os direitos reservados.
  
  
